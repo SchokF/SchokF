@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @SchokF
+- 👀 I’m interested in Coding
+- 📫 How to reach me Schokoflo#0001 (Discord)
